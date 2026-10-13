@@ -1,4 +1,5 @@
 NETHERLAND'S BIGGEST SEAL RECUSE CENTER MIGHT GO BANKRUPT -> [PLEASE READ](https://www.youtube.com/post/UgkxF7e-JoZMEoRfRxkztpE75w3LoQ-Zy1xA)
+THE GOFUND ME -> [CLICK HERE FOR THE GOFUND ME](https://www.gofundme.com/f/red-zeehondencentrum-pieterburen-doneer-nu)
 IF IT HAS TO SHUT DOWN THE FATE OF 70 SEAL'S AND MORE WILL BE AT RISK SPREAD THE WORD AROUND OR DONATE 🦭
 <img width="2048" height="300" alt="Untitled2351_20261007153104" src="https://github.com/user-attachments/assets/93abf3b9-10c0-40f5-8436-b31b840a7c67" />
 
