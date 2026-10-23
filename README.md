@@ -15,4 +15,3 @@ IF IT HAS TO SHUT DOWN THE FATE OF 70 SEAL'S AND MORE WILL BE AT RISK SPREAD THE
 
 <img width="2048" height="300" alt="Untitled2351_20261007153104" src="https://github.com/user-attachments/assets/38a327d5-bf25-45d1-93cf-98882053941a" />
 
-[Sign my Ata! ->[⚘ ](https://s3als.atabook.org/)]
