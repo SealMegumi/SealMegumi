@@ -15,3 +15,8 @@ IF IT HAS TO SHUT DOWN THE FATE OF 70 SEAL'S AND MORE WILL BE AT RISK SPREAD THE
 
 <img width="2048" height="300" alt="Untitled2351_20261007153104" src="https://github.com/user-attachments/assets/38a327d5-bf25-45d1-93cf-98882053941a" />
 
+<img width="1280" height="1064" alt="Untitled2377_20261025224045" src="https://github.com/user-attachments/assets/9d5fc9c2-e6ca-4ae3-9292-a64fb37c9722" />
+<img width="2048" height="300" alt="Untitled2351_20261007153050" src="https://github.com/user-attachments/assets/03daf07e-89eb-4856-8eba-382190ac2239" />
+
+<img width="1536" height="885" alt="Untitled2378_20261025234907" src="https://github.com/user-attachments/assets/6a3dc18e-4bc2-43c0-a455-6f342436c1b4" />
+<img width="2048" height="300" alt="Untitled2351_20261007153104" src="https://github.com/user-attachments/assets/93abf3b9-10c0-40f5-8436-b31b840a7c67" />
